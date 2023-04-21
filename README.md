@@ -8,7 +8,7 @@
 
 ## 🚩 Private Servers for Build A Boat For Treasure
 
-- [#1 MrSquidie.co#5567]([MrSquidie.co#5567](https://www.roblox.com/games/537413528/Build-A-Boat-For-Treasure?privateServerLinkCode=80089840021173468920326896958791))
+- [#1 MrSquidie.co#5567](https://www.roblox.com/games/537413528/Build-A-Boat-For-Treasure?privateServerLinkCode=80089840021173468920326896958791)
 - [#2 AutisticNerdieCat69#0455](https://web.roblox.com/games/537413528?privateServerLinkCode=53827020421635064837824825543639)
 - [#3 Mxt#6276](https://www.roblox.com/games/537413528?privateServerLinkCode=97402639128575084901350902364752)
 - [#4 x2heart#3070](https://www.roblox.com/games/537413528?privateServerLinkCode=15046283863493524300180094468534)
